@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WTFeliz
+- 👀 I’m interested in art and gene therapy
+- 🌱 I’m currently learning healing arts and disruptive technology
+- 💞️ I’m looking to collaborate on public art exhibitions and non invasive cerebrospinal fluid diagnostic technology
+- 📫 How to reach me little.anna.molly@gmail.com
